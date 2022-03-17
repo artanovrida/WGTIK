@@ -1,0 +1,2 @@
+# WGTIK
+TUGAS1
